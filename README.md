@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **likithajagadish.2203@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/13WejHKPvXUEwbOuJ7IS24XAMb4v49pJb/view?usp=drivesdk](https://drive.google.com/file/d/13WejHKPvXUEwbOuJ7IS24XAMb4v49pJb/view?usp=drivesdk)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
